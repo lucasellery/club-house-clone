@@ -10,6 +10,6 @@
 
 ## Author
 Lucas Ellery
-- Find me in socil media:
+- Find me in social media:
   - LinkedIn: https://www.linkedin.com/in/lucas-arruda-ellery-82753118a/
   - Instagram: @llucasellery

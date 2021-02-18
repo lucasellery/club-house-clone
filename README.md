@@ -12,4 +12,4 @@
 Lucas Ellery
 - Find me in socil media:
   - LinkedIn: https://www.linkedin.com/in/lucas-arruda-ellery-82753118a/
-  - Instagrem: @llucasellery
+  - Instagram: @llucasellery
